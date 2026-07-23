@@ -19,3 +19,11 @@
 
 <𝙳𝙽𝙸⚠️. 𝚛𝚊𝚌𝚒𝚜𝚝𝚜, 𝚒𝚜𝚕𝚊𝚖𝚙𝚑𝚘𝚋𝚒𝚌𝚜, 𝚊𝚗𝚢 𝚝𝚢𝚙𝚎 𝚘𝚏 𝚙𝚛𝚘𝚋𝚕𝚎𝚖𝚊𝚝𝚒𝚌 𝚜𝚑𝚒𝚙𝚙𝚎𝚛𝚜.
 
+𝙨𝙩𝙖𝙢𝙥𝙨 !  ˙✧˖°📷 ༘ ⋆｡˚ྀིྀི𝜗ৎ｡𖦹°‧
+
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/551fe9ab-7b31-479d-8039-8309deb69dea" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ff4b0504-c61b-4348-8349-c76e9368d512" />
+
+
+
+
