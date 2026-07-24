@@ -5,9 +5,8 @@
 <div align="center">
   <img src="https://imgur.com" width="250" alt="The Cars - Heartbeat City Album Cover" />
   
-  ## Heartbeat City
-  ### The Cars (1984)
-</div>
+Heartbeat City
+ The Cars (1984)
 
 
 ᡕᠵデᡁ᠊╾━༘   ⋆ : ̗̀➛⊱                                                                                                                 
