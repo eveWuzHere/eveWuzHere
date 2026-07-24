@@ -3,7 +3,7 @@
                                                                                                                                                                                                                                                                                                                                                                                                                                                                               
 <img width="440" height="320" alt="image" src="https://github.com/user-attachments/assets/9a72f8bc-4cca-4ad4-8b6b-886ad0a3371e" />
 <div align="center">
-  <img src="https://discogs.com" width="250" alt="The Cars - Heartbeat City Album Cover" />
+  <img src="https://wikimedia.org" width="250" alt="The Cars - Heartbeat City Album Cover" />
   
   ## Heartbeat City
   ### The Cars (1984)
