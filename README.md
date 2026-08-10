@@ -1,6 +1,8 @@
 <div align="center">
-<img width="640" height="42" alt="image" src="https://github.com/user-attachments/assets/222e547a-73bc-4a41-8cd8-896600a834ea" />                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                             
-<img width="440" height="320" alt="image" src="https://github.com/user-attachments/assets/9a72f8bc-4cca-4ad4-8b6b-886ad0a3371e" />
+https://64.media.tumblr.com/3342d0925f932c057cac80329918073d/4843688645915899-29/s640x960/bc2ccf34adf48d9cb8a9a06eebd9093504fbac9b.gifv                                                                                                                                                                                                              https://64.media.tumblr.com/67778e4e81a8a776b0352ae1efe5fb7a/4843688645915899-a0/s640x960/f897e69a206261d1a5dfeb4470421ed96c36e0c0.pnj<img width="640" height="48" alt="image" src="https://github.com/user-attachments/assets/ff62ef7f-0355-4447-b8fa-904f4c735eb8" />
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                               
+<img width="499" height="205" alt="image" src="https://github.com/user-attachments/assets/9e6c1b29-76fc-4e4a-95ef-c013a155f261" />
+
 
  
   
@@ -31,13 +33,8 @@ Heartbeat City ,
 
 𝙨𝙩𝙖𝙢𝙥𝙨 !  ˙✧˖°📷 ༘ ⋆｡˚ྀིྀི𝜗ৎ｡𖦹°‧
 
-<img width="105" height="60" alt="image" src="https://github.com/user-attachments/assets/7cabcf68-4591-4dfd-8c64-e85196885cf5" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/551fe9ab-7b31-479d-8039-8309deb69dea" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ff4b0504-c61b-4348-8349-c76e9368d512" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6f4fcb1d-536f-42c5-baf8-865a9a6eed08" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e87ac9e4-fa7d-45cb-9989-a5f159d4a211" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f9e12375-b18a-4658-bed3-d00e67ba3c7b" />
-
+https://64.media.tumblr.com/840945daca90819435f6e280a13df591/084e7d099f7bb53c-ac/s250x400/7478c0ceeac591773a9af388a4db68e140c4546a.pnj
+https://64.media.tumblr.com/d43259f4376727f2fa34508e3ca6d7d3/4d7a9e77c452ad67-01/s100x200/9cece8b51ab6792eac9f7e89b600a4515dcb5665.pnj
 
 
 
