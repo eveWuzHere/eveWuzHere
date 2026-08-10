@@ -36,7 +36,7 @@ Heartbeat City ,
 
 <img width="250" height="127" alt="image" src="https://github.com/user-attachments/assets/59e90b94-34e3-4743-9e3a-6a42b29aff4e" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/67cfc576-9077-4b4f-bbf4-d38a5f4cf865" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5f57bc8e-9564-41ca-bfaa-acb20e9ff240" />
+
 
 
 
