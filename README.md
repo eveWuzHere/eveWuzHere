@@ -2,7 +2,7 @@
 
   <img width="640" height="141" alt="image" src="https://github.com/user-attachments/assets/baf016fc-1ede-4b84-b91a-3e579a58151f" />
                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        
-<img width="499" height="205" alt="image" src="https://github.com/user-attachments/assets/9e6c1b29-76fc-4e4a-95ef-c013a155f261" /> <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/080d6c93-1ed0-4488-87e3-4b508f12800e" />
+<img width="499" height="205" alt="image" src="https://github.com/user-attachments/assets/9e6c1b29-76fc-4e4a-95ef-c013a155f261" /> 
 
 
 
@@ -33,10 +33,14 @@ Heartbeat City ,
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 
+
 𝙨𝙩𝙖𝙢𝙥𝙨 !  ˙✧˖°📷 ༘ ⋆｡˚ྀིྀི𝜗ৎ｡𖦹°‧
 
 <img width="250" height="127" alt="image" src="https://github.com/user-attachments/assets/59e90b94-34e3-4743-9e3a-6a42b29aff4e" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/67cfc576-9077-4b4f-bbf4-d38a5f4cf865" />
+<img width="97" height="57" alt="image" src="https://github.com/user-attachments/assets/cd837f6e-f93a-4161-b0f9-373c83d503d6" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/835507a4-523f-428d-bda1-73be4ea64cb7" />
+
 
 
 
