@@ -1,6 +1,6 @@
 <div align="center">
 
-  .pnj<img width="640" height="141" alt="image" src="https://github.com/user-attachments/assets/baf016fc-1ede-4b84-b91a-3e579a58151f" />
+  <img width="640" height="141" alt="image" src="https://github.com/user-attachments/assets/baf016fc-1ede-4b84-b91a-3e579a58151f" />
                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        
 <img width="499" height="205" alt="image" src="https://github.com/user-attachments/assets/9e6c1b29-76fc-4e4a-95ef-c013a155f261" />
 
@@ -34,8 +34,10 @@ Heartbeat City ,
 
 𝙨𝙩𝙖𝙢𝙥𝙨 !  ˙✧˖°📷 ༘ ⋆｡˚ྀིྀི𝜗ৎ｡𖦹°‧
 
-https://64.media.tumblr.com/840945daca90819435f6e280a13df591/084e7d099f7bb53c-ac/s250x400/7478c0ceeac591773a9af388a4db68e140c4546a.pnj
-https://64.media.tumblr.com/d43259f4376727f2fa34508e3ca6d7d3/4d7a9e77c452ad67-01/s100x200/9cece8b51ab6792eac9f7e89b600a4515dcb5665.pnj
+<img width="250" height="127" alt="image" src="https://github.com/user-attachments/assets/59e90b94-34e3-4743-9e3a-6a42b29aff4e" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/67cfc576-9077-4b4f-bbf4-d38a5f4cf865" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5f57bc8e-9564-41ca-bfaa-acb20e9ff240" />
+
 
 
 
