@@ -14,8 +14,7 @@
  
   
 
-<img width="12" height="12" alt="image" src="https://github.com/user-attachments/assets/3264d3c7-8c4b-4751-a3c8-e7097a5a3d66" />
-  ᴄᴏᴡʙᴏʏꜱ ᴀɴᴅ ᴀɴɢᴇʟꜱ ‧ 
+<img width="12" height="12" alt="image" src="https://github.com/user-attachments/assets/3264d3c7-8c4b-4751-a3c8-e7097a5a3d66" /> ᴄᴏᴡʙᴏʏꜱ ᴀɴᴅ ᴀɴɢᴇʟꜱ ‧ 
 ɢᴇᴏʀɢᴇ ᴍɪᴄʜᴀᴇʟ ‧ 1990
 
 
