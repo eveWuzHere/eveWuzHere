@@ -1,16 +1,22 @@
-<div align="center">
+<img width="475" height="201" alt="image" src="https://github.com/user-attachments/assets/ad2f6ced-a076-4db7-a6b1-81acf3ff6d3b" /><div align="center">
 
-  <img width="640" height="141" alt="image" src="https://github.com/user-attachments/assets/baf016fc-1ede-4b84-b91a-3e579a58151f" />
-                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                       
-<img width="500" height="308" alt="image" src="https://github.com/user-attachments/assets/a046c071-c8b9-4c90-9d42-b08a77e24952" />
+ <img width="640" height="75" alt="image" src="https://github.com/user-attachments/assets/5318d370-e0b7-4812-9c6a-00f14722229c" />
+ 
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/47cc6eef-e732-4e18-9fed-4ca866c04d17" />
+                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                               
+<img width="475" height="201" alt="image" src="https://github.com/user-attachments/assets/d1b6df91-80a0-4790-a195-e4b3f9c4994f" />
+                                                                       
+
  
 
 
 
  
   
-Eleanor Rigby ,
-The Beatles (1966)
+
+<img width="12" height="12" alt="image" src="https://github.com/user-attachments/assets/3264d3c7-8c4b-4751-a3c8-e7097a5a3d66" />
+  ᴄᴏᴡʙᴏʏꜱ ᴀɴᴅ ᴀɴɢᴇʟꜱ ‧ 
+ɢᴇᴏʀɢᴇ ᴍɪᴄʜᴀᴇʟ ‧ 1990
 
 
 ⋆｡‧˚ʚ🧸ɞ˚‧｡⋆𝄞𝄢                                                                                                             
@@ -34,19 +40,20 @@ The Beatles (1966)
 
 <𝙸𝙽𝚃!! 𝚎𝚍𝚍𝚜𝚠𝚘𝚛𝚕𝚍 𝚏𝚊𝚗𝚜, 𝚘𝚟𝚎𝚛𝚠𝚊𝚝𝚌𝚑 𝚙𝚕𝚊𝚢𝚎𝚛𝚜, 𝚋𝚎𝚝𝚊 𝚜𝚚𝚞𝚊𝚍 𝚠𝚊𝚝𝚌𝚑𝚎𝚛𝚜, 𝚖𝚊𝚣𝚎 𝚛𝚞𝚗𝚗𝚎𝚛 𝚛𝚎𝚊𝚍𝚎𝚛𝚜, 𝚃𝚑𝚎 𝙱𝚎𝚊𝚝𝚕𝚎𝚜 𝚏𝚊𝚗🥹!!
 
-<𝙳𝙽𝙸⚠️. 𝚛𝚊𝚌𝚒𝚜𝚝𝚜, 𝚜𝚎𝚡𝚒𝚜𝚝𝚜, 𝚒𝚜𝚕𝚊𝚖𝚙𝚑𝚘𝚋𝚒𝚌𝚜, 𝚊𝚗𝚢 𝚝𝚢𝚙𝚎 𝚘𝚏 𝚙𝚛𝚘𝚋𝚕𝚎𝚖𝚊𝚝𝚒𝚌 𝚜𝚑𝚒𝚙𝚙𝚎𝚛𝚜, 𝚋𝚘𝚞𝚗𝚍𝚊𝚛𝚢 𝚙𝚞𝚜𝚑𝚎𝚛𝚜.
+
+𝙳𝙽𝙸⚠️. 𝚛𝚊𝚌𝚒𝚜𝚝𝚜, 𝚜𝚎𝚡𝚒𝚜𝚝𝚜, 𝚒𝚜𝚕𝚊𝚖𝚙𝚑𝚘𝚋𝚒𝚌𝚜, 𝚊𝚗𝚢 𝚝𝚢𝚙𝚎 𝚘𝚏 𝚙𝚛𝚘𝚋𝚕𝚎𝚖𝚊𝚝𝚒𝚌 𝚜𝚑𝚒𝚙𝚙𝚎𝚛𝚜, 𝚋𝚘𝚞𝚗𝚍𝚊𝚛𝚢 𝚙𝚞𝚜𝚑𝚎𝚛𝚜.
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 ‧₊˚♪ 𝄞₊˚⊹
 
 𝙨𝙩𝙖𝙢𝙥𝙨 !  ˙✧˖°📷 ༘ ⋆｡˚ྀིྀི𝜗ৎ｡𖦹°‧
+<img width="200" height="33" alt="image" src="https://github.com/user-attachments/assets/0b240751-f570-4704-95b1-2c5c925a17f9" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e7e14963-8328-43b5-a99a-5f3c8fc6310e" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/bb7532a3-614b-44d5-b18a-fa8bfd68bd86" />
 
-<img width="250" height="127" alt="image" src="https://github.com/user-attachments/assets/59e90b94-34e3-4743-9e3a-6a42b29aff4e" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/67cfc576-9077-4b4f-bbf4-d38a5f4cf865" />
-<img width="97" height="57" alt="image" src="https://github.com/user-attachments/assets/cd837f6e-f93a-4161-b0f9-373c83d503d6" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/835507a4-523f-428d-bda1-73be4ea64cb7" />
 
+( 𝘪 𝘥𝘰𝘯𝘵 𝘩𝘢𝘷𝘦 𝘢𝘯𝘺 𝘮𝘢𝘻𝘦 𝘳𝘶𝘯𝘯𝘦𝘳 𝘴𝘵𝘢𝘮𝘱𝘴. 𝘰𝘬. 𝘣𝘺𝘦. )
 
 ⏾⋆.˚ᶻ 𝗓 𐰁 .ᐟ
 
